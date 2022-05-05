@@ -1,1 +1,1 @@
-read linked thing before you interact
+read link on profile before interacting
