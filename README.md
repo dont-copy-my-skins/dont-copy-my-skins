@@ -1,22 +1,27 @@
-**Juno**
+![goofy guys](https://xyz.crd.co/assets/images/gallery01/170e0d38.gif?v=c399677b) *juno* 
 
-**it/they/he pronouns**
+it/they/he ![stars](https://xyz.crd.co/assets/images/gallery15/44a0dd70.gif?v=c399677b)
 
-**Taken by 4 amazing people!**
+![wing](https://xyz.crd.co/assets/images/gallery11/cb04dadb.gif?v=c399677b) gay mlm demian polyamorous
 
+taken by **5 amazing people** ![heart](https://xyz.crd.co/assets/images/gallery21/ca0013f0.gif?v=c399677b)
 
+[send me death threats, asks, or other shit](https://tellonym.me/neco_arc)
 
+![divider](https://yokai.crd.co/assets/images/image47.png?v=b4df531c)
 
-## do not interact
+### ![cat](https://pixel.crd.co/assets/images/gallery04/d3a55456.gif?v=c05cdc93) DNI
 
-[basic dni](https://dni-criteria-list.carrd.co/)
+[basic dni criteria](https://dni-criteria-list.carrd.co/)
 
-if you support funnyhyenaboy/mocha, emotionless_day, unpredictable_day, shipful/xenine, mugen/uleanra, [endogenic systems](https://why-endos-are-bad.carrd.co/#resources), mspec lesbians
+if you support or are associated with xenine/horridandfrenemies/koresys/spaceship chatroom/heterophobicsystem
 
-tt/td
+if you support emotionless_day, unpredictable_day, or shitty old DU admins
 
-dream, george, or tommyinnit skins
+if you support mugen/uleanra 
 
-proshipper (YOU ARE NOT SAFE HERE. FUCK OFF)
+if you're under the age of 13 
 
-shtwt, edtwt, or encourage self harm, delusions, or eating disorders (you are sick.)
+if you're gonna flirt with me (i love my boyfriends, fuck off)
+
+**other than that, i hide freely**
