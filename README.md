@@ -24,4 +24,6 @@ if you're under the age of 13
 
 if you're gonna flirt with me (i love my boyfriends, fuck off)
 
+you support endogenic systems or mspec lesbians
+
 **other than that, i hide freely**
