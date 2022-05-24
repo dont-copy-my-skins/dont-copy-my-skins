@@ -26,4 +26,6 @@ if you're gonna flirt with me (i love my boyfriends, fuck off)
 
 you support endogenic systems or mspec lesbians
 
+you're just gonna call me any of my old aliases (silence.)
+
 **other than that, i hide freely**
