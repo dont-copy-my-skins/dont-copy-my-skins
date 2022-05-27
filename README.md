@@ -28,4 +28,6 @@ you support endogenic systems or mspec lesbians
 
 you're just gonna call me any of my old aliases (stfu)
 
+you read or write days union ship and or smut fanfics (you're gross, kindly get away)
+
 **other than that, i hide freely**
