@@ -4,3 +4,4 @@ Hi! Welcome to my Github
 
 **Please take extreme caution when interacting with me, as I may be unnecessarily aggressive towards you or anyone else.** 
 
+**Mainly on 18+ and Safe servers**
