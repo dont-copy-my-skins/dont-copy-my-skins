@@ -1,3 +1,4 @@
+» [Please read this if you're a fan of the Days Union](https://down-with-the-days-union.carrd.co/)
 ───────────── ☆ ────────────────
 
 ┊ **SOCIALS**
@@ -18,6 +19,6 @@
 
 ┊ Please take **EXTRA** caution when interacting with me. I'm very snappy and unneccessarily aggressive at times. 
 
-» [Please read this if you're a fan of the Days Union](https://down-with-the-days-union.carrd.co/)
+┊ I am **AFK** almost all of the time. I may not respond to you at all.
 
 ───────────── ☆ ────────────────
