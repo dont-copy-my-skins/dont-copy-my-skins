@@ -12,8 +12,6 @@
 
 » [Ground Color Codes](https://rentry.co/ponytown-color-codes) *Made by me*
 
-» [Name Tag Dictionary](https://rentry.co/Name-Tag-Dictionary) *Not made by me* (Use with caution)
-
 » [Toys](https://ponytown.fandom.com/wiki/Toys)
 
 ─────────────
