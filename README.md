@@ -22,4 +22,6 @@
 
 ┊ I am **AFK** almost all of the time. I may not respond to you at all.
 
+┊ Cashe ( Cole Cassidy x Ashe) Shippers **please do not interact**
+
 ───────────── ☆ ────────────────
