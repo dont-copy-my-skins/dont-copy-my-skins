@@ -7,6 +7,7 @@
 » Tumblr: sega-genesis-lover
 » Discord: dr.myriad
 » Twitter: cervidcarnage
+» Bluesky: cervidcarnage.bsky.social (Sometimes NSFW, tread with caution if <18)
 ```
 ─────────────
 
