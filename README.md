@@ -25,6 +25,6 @@
 
 ┊ Cashe ( Cole Cassidy x Ashe) Shippers **please do not interact**
 
-┊ Under 16 DNI
+┊ (SAFE SERVER SPECIFIC) Minors limit interaction (unless friends) and **do not flirt with me**
 
 ───────────── ☆ ────────────────
