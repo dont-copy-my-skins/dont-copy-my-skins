@@ -9,7 +9,7 @@
 ```
 ─────────────
 
-┊ **PONYTOWN RESOURCES**![A red chain saw.](https://mikejima.crd.co/assets/images/shadow/b40ec313.gif?v=2e5106a3)
+┊ **PONYTOWN RESOURCES** ![A red chain saw.](https://mikejima.crd.co/assets/images/shadow/b40ec313.gif?v=2e5106a3)
 
 » [Ground Color Codes](https://rentry.co/ponytown-color-codes) *Made by me*
 
