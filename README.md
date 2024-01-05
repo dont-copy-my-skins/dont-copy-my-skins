@@ -1,8 +1,6 @@
-» [Please read this if you're a fan of the Days Union](https://down-with-the-days-union.carrd.co/)
-
 ───────────── ☆ ────────────────
 
-┊ **SOCIALS**
+┊ **SOCIALS** ![A red chain saw.](https://mikejima.crd.co/assets/images/shadow/b40ec313.gif?v=2e5106a3)
 ```
 » Tumblr: sega-genesis-lover
 » Discord: dr.myriad
@@ -11,21 +9,10 @@
 ```
 ─────────────
 
-┊ **PONYTOWN RESOURCES**
+┊ **PONYTOWN RESOURCES**![A red chain saw.](https://mikejima.crd.co/assets/images/shadow/b40ec313.gif?v=2e5106a3)
 
 » [Ground Color Codes](https://rentry.co/ponytown-color-codes) *Made by me*
 
 » [Toys](https://ponytown.fandom.com/wiki/Toys)
-
-─────────────
-```
-┊ Please take **EXTRA** caution when interacting with me. I'm very snappy and unneccessarily aggressive at times. 
-
-┊ I am **AFK** almost all of the time. I may not respond to you at all.
-
-┊ Cashe ( Cole Cassidy x Ashe) Shippers **please do not interact**
-
-┊ (SAFE SERVER SPECIFIC) Minors limit interaction (unless friends) and **do not flirt with me**
-```
 
 ───────────── ☆ ────────────────
