@@ -6,7 +6,7 @@
 
 ☆ ⁞ **queer** & **neurodivergent**
 
-☆ ⁞ **multifandom** & **[artist](
+☆ ⁞ **multifandom** & **artist**
 
 ![](https://media.discordapp.net/attachments/903364339464044575/1101211323225866350/BF77C1F5-8A09-4F9B-9A65-0558C9E65D78.gif)
 
