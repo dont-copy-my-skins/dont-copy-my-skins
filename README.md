@@ -1,18 +1,16 @@
 ───────────── ☆ ────────────────
 
-┊ **SOCIALS** ![A red chain saw.](https://mikejima.crd.co/assets/images/shadow/b40ec313.gif?v=2e5106a3)
-```
-» Tumblr: sega-genesis-lover
-» Discord: dr.myriad
-» Twitter: cervidcarnage
-» Bluesky: cervidcarnage.bsky.social (Sometimes NSFW, tread with caution if <18)
-```
-─────────────
+☆ ⁞ **myriad / cassidy** | **he/him + any neopronouns** ![queer](https://i.postimg.cc/W4SHj2jB/queer-flag-9-stripes-21-px.png) 
 
-┊ **PONYTOWN RESOURCES** ![A red chain saw.](https://mikejima.crd.co/assets/images/shadow/b40ec313.gif?v=2e5106a3)
+☆ ⁞ **college student** 
 
-» [Ground Color Codes](https://rentry.co/ponytown-color-codes) *Made by me*
-
-» [Toys](https://ponytown.fandom.com/wiki/Toys)
+☆ ⁞ **married**
 
 ───────────── ☆ ────────────────
+
+☆ ⁞ no strict dni besides
+* [bright/adminbright apologists](https://docs.google.com/document/d/149Aqt4wBudAcmJ0kY3lsP_asYBQ0QoOieFOpFGksGWs/edit)
+* proship, comship, and darkship
+* people who support pedophilia, zoophilia, necrophilia, and incestuous relationships
+* if you're only going to shit on 963/bright rewrites
+* anti-fictionkin
