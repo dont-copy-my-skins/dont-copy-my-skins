@@ -11,7 +11,7 @@
 ![](https://media.discordapp.net/attachments/903364339464044575/1101211323225866350/BF77C1F5-8A09-4F9B-9A65-0558C9E65D78.gif)
 
 ☆ ⁞ no exact dni besides:
-* [bright/adminbright apologists](https://docs.google.com/document/d/149Aqt4wBudAcmJ0kY3lsP_asYBQ0QoOieFOpFGksGWs/edit) 
+* [dr.bright/adminbright apologists](https://docs.google.com/document/d/149Aqt4wBudAcmJ0kY3lsP_asYBQ0QoOieFOpFGksGWs/edit) 
 * proship, comship, and darkship
 * people who support pedophilia, zoophilia, necrophilia, incestuous relationships, or toxic/abusive relationships
 * lily / scp-4231-a skins, kins, or people who relate to her in any way
