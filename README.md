@@ -25,5 +25,7 @@
 
 ☆ ⁞ **quick notes**
 * do not flirt with me. i am married. **especially don't flirt with me if you're a minor.**
+* if i'm obviously with my husband, **interact with extreme caution**
+
 ![](https://media.discordapp.net/attachments/903364339464044575/1101867385771794523/43842473-6DCB-4C46-8CE3-421316D7DD8A.gif)
 ![art by me](https://github.com/dont-copy-my-skins/dont-copy-my-skins/assets/84343121/e47ec9c6-bf62-4484-b723-50ad435939ef)
