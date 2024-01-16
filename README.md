@@ -19,7 +19,7 @@
 * anti-fictionkin, anti-otherkin, anti-therian, anti-furry, etc
 * anti-neopronouns and xenogenders
 
-**people who still use bright are on extremely thin ice. please read the doc linked. introjects are okay.** 
+**people who still use bright are on extremely thin ice. please read the doc linked. introjects are okay. i hide at my own discretion.** 
 
 ![](https://media.discordapp.net/attachments/903364339464044575/1101211323225866350/BF77C1F5-8A09-4F9B-9A65-0558C9E65D78.gif)
 
