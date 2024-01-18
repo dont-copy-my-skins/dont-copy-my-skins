@@ -17,10 +17,9 @@
 * proship, comship, and darkship
 * people who support pedophilia, zoophilia, necrophilia, incestuous relationships, or toxic/abusive relationships
 * lily / scp-4231-a skins, kins, or people who relate to her in any way.
-* anti-fictionkin, anti-otherkin, anti-therian, anti-furry, etc
-* anti-neopronouns and xenogenders
-* [days union fans](https://down-with-the-days-union.carrd.co/)
-  * stop supporting a project that's hurt so many people i know. i don't care if you don't support it, **stop using the characters.** some of them were literal personas of horrible people.
+* anti-fictionkin, anti-otherkin, anti-therian, anti-furry, anti-neopronouns, and anti-xenogenders
+* [days union fans or apologists](https://down-with-the-days-union.carrd.co/)
+* **especially dni if i have "fandom dni" in my name**
 
 ![](https://media.discordapp.net/attachments/903364339464044575/1101211323225866350/BF77C1F5-8A09-4F9B-9A65-0558C9E65D78.gif)
 
