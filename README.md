@@ -1,6 +1,6 @@
 ![](https://media.discordapp.net/attachments/903364339464044575/1101867385771794523/43842473-6DCB-4C46-8CE3-421316D7DD8A.gif)
 
-☆ ⁞ **myriad / cassidy** | **he/him** & **any neopronouns** 
+☆ ⁞ **myriad / cassidy** | **he/him** & **any neopronouns** ![](https://ouija.crd.co/assets/images/gallery13/cb2a9405.gif?v=b8c53f22)
 
 ☆ ⁞ **college student** & **married**
 
