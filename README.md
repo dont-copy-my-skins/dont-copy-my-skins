@@ -12,8 +12,8 @@
 ![](https://media.discordapp.net/attachments/903364339464044575/1101211323225866350/BF77C1F5-8A09-4F9B-9A65-0558C9E65D78.gif)
 
 ☆ ⁞ **no exact dni besides:**
-* [dr.bright/adminbright apologists](https://docs.google.com/document/d/149Aqt4wBudAcmJ0kY3lsP_asYBQ0QoOieFOpFGksGWs/edit)
-  * If you still use bright, **you are still on extremely thin ice.** please use rewrites such as [dr. myriad](https://mattastr0phic.tumblr.com/personnelfiles) or make your own, thank you
+* [dr.bright/adminbright apologists or if you use him still](https://docs.google.com/document/d/149Aqt4wBudAcmJ0kY3lsP_asYBQ0QoOieFOpFGksGWs/edit)
+  * introjects are okay. you can't control your source. 
 * proship, comship, and darkship
 * people who support pedophilia, zoophilia, necrophilia, incestuous relationships, or toxic/abusive relationships
 * lily / scp-4231-a skins, kins, or people who relate to her in any way.
