@@ -14,7 +14,7 @@
 ☆ ⁞ **no exact dni besides:**
 * [dr.bright/adminbright apologists or if you use him still](https://docs.google.com/document/d/149Aqt4wBudAcmJ0kY3lsP_asYBQ0QoOieFOpFGksGWs/edit)
   * introjects are okay. you can't control your source.
-  * friends are iffy. **just be respectful that i choose to use rewrites**
+  * friends are iffy. **just be respectful that i choose to use rewrites and we're fine**
 * proship, comship, and darkship
 * people who support pedophilia, zoophilia, necrophilia, incestuous relationships, or toxic/abusive relationships
 * lily / scp-4231-a skins, kins, or people who relate to her in any way.
