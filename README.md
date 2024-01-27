@@ -13,6 +13,8 @@ Also known as:
 * Lilly/SCP-4231-A skins, kins, sympathizers, simps, apologists, etc. **You guys make me sick.**
 * [Days Union](https://down-with-the-days-union.carrd.co/) apologists and supporters
   * Days Union introjects **do not count.** They can't control their source.
+* anti-otherkin
+  * fictionkin, otherhearted, therian, etc
     
 ![](https://mikejima.crd.co/assets/images/gallery29/39d52898.gif?v=2e5106a3)
 
