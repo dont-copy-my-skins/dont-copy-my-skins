@@ -6,11 +6,12 @@ Also known as:
 ![](https://mikejima.crd.co/assets/images/gallery29/39d52898.gif?v=2e5106a3)
 
 **Short yet simple DNI:**
-* [AdminBright](https://docs.google.com/document/d/149Aqt4wBudAcmJ0kY3lsP_asYBQ0QoOieFOpFGksGWs/edit) apologists
+* [AdminBright](https://docs.google.com/document/d/149Aqt4wBudAcmJ0kY3lsP_asYBQ0QoOieFOpFGksGWs/edit) apologists and supporters
   * Bright introjects **do not count.** They can't control their source. 
 * Proship, comship, darkship, etc
-* People who fakeclaim systems **for no reason** or have PonyTown systems on their DNI
+* People who fakeclaim systems **for no reason** or have "PonyTown systems" on their DNI
 * Lilly/SCP-4231-A skins, kins, sympathizers, simps, apologists, etc. **You guys make me sick.**
+* [Days Union](https://down-with-the-days-union.carrd.co/) apologists and supporters
 
 ![](https://mikejima.crd.co/assets/images/gallery29/39d52898.gif?v=2e5106a3)
 
