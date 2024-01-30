@@ -3,6 +3,8 @@
 Also known as:
 * [Sega-genesis-lover](https://www.tumblr.com/blog/sega-genesis-lover) on Tumblr.
 
+* Please be warned I clear my friend list a lot. If we just became friends and I unfriend you, I am sorry.
+
 ![](https://mikejima.crd.co/assets/images/gallery29/39d52898.gif?v=2e5106a3)
 
 **Short yet simple DNI:**
