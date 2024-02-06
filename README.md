@@ -15,6 +15,8 @@
   * Also includes: Alonetraveler and Selozar apologists and supporters. They were the same person by the way!
 * anti-otherkin
   * fictionkin, otherhearted, therian, etc
+* Cashe (Cole Cassidy / Ashe) shippers
+  
     
 ![](https://mikejima.crd.co/assets/images/gallery29/39d52898.gif?v=2e5106a3)
 
