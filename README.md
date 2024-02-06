@@ -14,7 +14,6 @@
   * Days Union introjects **do not count.** They can't control their source.
   * Also includes: Alonetraveler and Selozar apologists and supporters. They were the same person by the way!
 * anti-otherkin, anti-furry, anti-therian, anti-fictionkin, etc
-* Cashe (Cole Cassidy / Ashe) shippers
      
 ![](https://files.catbox.moe/pd7xmp.gif) 
 
