@@ -3,7 +3,7 @@
 https://twitter.com/daikyto9/status/1759562941500719589
 
 # **PALESTINE RESOURCES**
-
+![](https://64.media.tumblr.com/06428c60361dbd48d6c9c0af2526d87a/c1444e7ecc640155-4a/s100x200/338928d9011d1a681215467c5a73b24551acd9c0.gif)
 * https://www.palestinediasporamovement.com/
 * https://arab.org/click-to-help/palestine/ - DAILY CLICK. PLEASE DO IT. 
 * https://www.gofundme.com/f/careforgaza
