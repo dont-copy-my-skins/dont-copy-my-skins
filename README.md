@@ -1,4 +1,7 @@
-![](https://64.media.tumblr.com/06428c60361dbd48d6c9c0af2526d87a/c1444e7ecc640155-4a/s100x200/338928d9011d1a681215467c5a73b24551acd9c0.gif)
+![](https://64.media.tumblr.com/06428c60361dbd48d6c9c0af2526d87a/c1444e7ecc640155-4a/s100x200/338928d9011d1a681215467c5a73b24551acd9c0.gif) 
+
+![](https://komarev.com/ghpvc/?username=dont-copy-my-skins&style=plastic&#a40c14)
+
 # **PALESTINE RESOURCES**
 
 https://www.shutitdown4palestine.org/
